@@ -1,2 +1,2 @@
 # IDK
-I just wanna put my codes here and there is nothing serious here
+Listen dude, these are just for educational purposes

@@ -1,2 +1,2 @@
-# IDK
-Listen dude, these are just for educational purposes
+# Personal Repository
+This is the personal one and I will post something here.
